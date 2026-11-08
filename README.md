@@ -1,0 +1,1 @@
+# zahist_informacii_lab_2
